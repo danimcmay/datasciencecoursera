@@ -1,0 +1,24 @@
+Danis-MacBook-Pro:datasciencecoursera DMac$ 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
